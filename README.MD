@@ -1,0 +1,1 @@
+Im trying to finish this but got overwhelmed on the scrapping part 
